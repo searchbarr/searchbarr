@@ -1,1 +1,1 @@
-💬 You can speak to me me about **Game Anticheats**, **Java**.
+💬 You can speak to me me about **Java**, **Game Anticheats**.
